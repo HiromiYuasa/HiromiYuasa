@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HiromiYuasa (其实是某人ghs的小号qwq)
+- 👋 Hi, I’m @HiromiYuasa (曾用ID AsteriaNeko | 其实是某人ghs的小号qwq)
 - 👀 I’m interested in 涩涩
 - 🌱 I’m currently learning 卖萌
 - 💞️ I’m looking to collaborate on 奇奇怪怪的Play
